@@ -93,7 +93,7 @@ Expected Graduation: 2027
 
 ## 📬 Contact
 
-📧 Email: maheshwarik1129@gmail.com
+📧 Email: maheshwarimaheshwari277@gmail.com
 
 🔗 LinkedIn:
 https://www.linkedin.com/in/maheshwarikanneboina-91a374312
